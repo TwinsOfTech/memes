@@ -4,4 +4,4 @@
 
 ![](its_happening.gif)
 
-![](strong_high_five.gif)
+![](paid_twice.gif)
