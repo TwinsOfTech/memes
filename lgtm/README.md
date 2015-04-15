@@ -25,3 +25,5 @@
 ![](weather_man.gif)
 
 ![](okay_thumbs_up.gif)
+
+![](dance.gif)
