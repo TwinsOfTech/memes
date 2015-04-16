@@ -27,3 +27,5 @@
 ![](okay_thumbs_up.gif)
 
 ![](dance.gif)
+
+![](strong_high_five.gif)
