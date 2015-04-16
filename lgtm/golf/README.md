@@ -31,3 +31,5 @@
 ![](spieth27cut-1.jpg)
 
 ![](spieth_caddy.jpg)
+
+![](tiger_yes.gif)
