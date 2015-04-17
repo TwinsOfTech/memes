@@ -14,6 +14,10 @@
 
 ![](excited_ian.jpg)
 
+![](happy_ian.gif)
+
+![](happy_putt.gif)
+
 ![](jdiz.jpeg)
 
 ![](jordan_green_jacket.jpg)
@@ -22,9 +26,17 @@
 
 ![](Jordan_Spieth_watched_what_raunchy_comedy_the_night_before_winning_the_Masters_.jpg)
 
+![](master_scott.jpg)
+
 ![](masters13cut-01.jpg)
 
+![](matt_tiger.gif)
+
 ![](pgaweb15s-u5d-web.jpg)
+
+![](phil_keegan_ryder.gif)
+
+![](rickie_putter_nose.jpg)
 
 ![](spieth-gj.png)
 
