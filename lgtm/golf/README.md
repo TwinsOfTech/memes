@@ -14,6 +14,8 @@
 
 ![](excited_ian.jpg)
 
+![](fowler_rory.jpg)
+
 ![](happy_ian.gif)
 
 ![](happy_putt.gif)
@@ -36,7 +38,15 @@
 
 ![](phil_keegan_ryder.gif)
 
+![](rickie_fist_bump.jpg)
+
+![](rickie_orange.jpg)
+
+![](rickie_phil_first_bump.jpg)
+
 ![](rickie_putter_nose.jpg)
+
+![](rickie_trophy.jpg)
 
 ![](spieth-gj.png)
 
