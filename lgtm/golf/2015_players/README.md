@@ -48,6 +48,8 @@
 
 ![](rickie-players.jpeg)
 
+![](rickie_17_birdies.gif)
+
 ![](tee-shot-17.jpeg)
 
 ![](trophy-rickie-players.jpg)
